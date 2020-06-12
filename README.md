@@ -1,2 +1,2 @@
-# RozpierdolBot
- bot co rozjebie Ci serwer
+# iesadjwapds\
+ ws0-e94rfthjnmg
